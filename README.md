@@ -1,6 +1,6 @@
 # Hi 👋 I'm Rawan Ibraheem
 
-🎓 3rd Year Computer & Communication Engineering Student | Alexandria University
+🎓 Computer & Communication Engineering Student | Alexandria University
 
 ## 🤝 Connect With Me
 
